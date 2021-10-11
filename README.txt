@@ -1,0 +1,1 @@
+My project is about the modern day holocaust of the Uyghur Muslims in China. There are literal concentration camps occurring today in our society and not many people are talking about it. These camps can be compared to the holocaust during WWII. My goal behind this project is to raise awareness about this current issue so that something can be done about it.
